@@ -12,6 +12,6 @@
 
 <img width="640" height="640" alt="1000016004" src="https://github.com/user-attachments/assets/12ef02af-89f7-410f-93fc-dd8b37ef395c" />
 
-
+𝕻rᥱ𝖿ᥱrᥲᑲᥣᥡ sᥱᥱ 𝗍һіs іᥒ ᥣіgһ𝗍 m᥆ძᥱ
 
 <img width="734" height="222" alt="1000016002" src="https://github.com/user-attachments/assets/ad4bd6b6-01fc-41d5-b988-9ce714e48f45" />
