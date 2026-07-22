@@ -14,8 +14,10 @@
 
 𝕻rᥱ𝖿ᥱrᥲᑲᥣᥡ sᥱᥱ 𝗍һіs іᥒ ᥣіgһ𝗍 m᥆ძᥱ
 
-<img width="2475" height="2478" alt="1000014879" src="https://github.com/user-attachments/assets/9317d7fc-1748-4dca-96d2-6f5edcce7a52" />
+<img width="877" height="771" alt="1000013194" src="https://github.com/user-attachments/assets/7bbfddd0-cb63-47c8-a9b7-7612671766f6" />
 
+
+ᥴrᥱძі𝗍 𝖿ᥲᥒᥲr𝗍 : ᥎і᥎і ^_^
 
 
 <img width="734" height="222" alt="1000016005" src="https://github.com/user-attachments/assets/994eaf93-2d75-44bf-92d1-ef8a9e2b9963" />
