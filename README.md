@@ -14,7 +14,7 @@
 
 𝕻rᥱ𝖿ᥱrᥲᑲᥣᥡ sᥱᥱ 𝗍һіs іᥒ ᥣіgһ𝗍 m᥆ძᥱ
 
-<img width="640" height="640" alt="1000016004" src="https://github.com/user-attachments/assets/8a1cdd40-8957-4e65-a8f3-e5d007fb1018" />
+<img width="2475" height="2478" alt="1000014879" src="https://github.com/user-attachments/assets/9317d7fc-1748-4dca-96d2-6f5edcce7a52" />
 
 
 
