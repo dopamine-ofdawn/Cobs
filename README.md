@@ -14,4 +14,9 @@
 
 𝕻rᥱ𝖿ᥱrᥲᑲᥣᥡ sᥱᥱ 𝗍һіs іᥒ ᥣіgһ𝗍 m᥆ძᥱ
 
-<img width="734" height="222" alt="1000016002" src="https://github.com/user-attachments/assets/ad4bd6b6-01fc-41d5-b988-9ce714e48f45" />
+<img width="640" height="640" alt="1000016004" src="https://github.com/user-attachments/assets/8a1cdd40-8957-4e65-a8f3-e5d007fb1018" />
+
+
+
+<img width="734" height="222" alt="1000016005" src="https://github.com/user-attachments/assets/994eaf93-2d75-44bf-92d1-ef8a9e2b9963" />
+
