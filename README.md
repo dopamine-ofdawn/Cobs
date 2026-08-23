@@ -10,7 +10,7 @@
 
 Nσɳʂԋαɾιɳɠ ƈσႦʂ ყυɱҽʂԋιρρҽɾ
 
-𝕯᥆ᥙᑲᥣᥱs іᥕᥱᥴ ᥆r ძᥒіᥙіძ
+
 
 <img width="640" height="640" alt="1000016004" src="https://github.com/user-attachments/assets/12ef02af-89f7-410f-93fc-dd8b37ef395c" />
 
