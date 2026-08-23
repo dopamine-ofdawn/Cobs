@@ -8,7 +8,7 @@
 <img width="736" height="414" alt="1000014907" src="https://github.com/user-attachments/assets/d09b7097-8e21-4743-ae07-720a38967b60" />
 
 
-𝕾᥆𝖿𝗍 sһᥲrіᥒg s𝗍ᥱ᥎ᥱ ᥴ᥆ᑲs ᥊ ᥆ᥴ
+Nσɳʂԋαɾιɳɠ ƈσႦʂ ყυɱҽʂԋιρρҽɾ
 
 𝕯᥆ᥙᑲᥣᥱs іᥕᥱᥴ ᥆r ძᥒіᥙіძ
 
